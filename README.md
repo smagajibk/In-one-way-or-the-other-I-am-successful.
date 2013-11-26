@@ -1,0 +1,4 @@
+In-one-way-or-the-other-I-am-successful.
+========================================
+
+I told my girlfriend that, my one eye picked upon my distination and only one remains with which to find the way-out, but unfortunately, the lackness of worldly meterials bigin to spoil the rest one that rest for my restness and I about to miss-eyes. Alas! Now loosed, and I like you to led my legs to luck in life, not to lake in line. Though you may afriad of blowness of dry's wind, and darkness of wet's wind that may flow to fill your eyes to be flooded and blinded. But how bliss of both beloved blinds! Breathe blithely, befed bouncily not in dranage or erossion. Yes, if they park and pick peaking perdoner as their patron, He can personalize them even with two sun as theis golden eyes, which throw them light from the sky to find their way-out.
